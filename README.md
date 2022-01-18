@@ -1,2 +1,3 @@
 # REAPER-ZIP
 This is a reaper virus and i am not responsible for any damage caused to your pc.
+THIS ONLY FOR EDUCATIONAL PURPOSES AND TESTING PURPOSES. I AM NOT RESPONSIBLE FOR ANY ILLEGAL ACTIVITY DONE WITH THIS VIRUS!!
